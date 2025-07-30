@@ -31,7 +31,7 @@ These universities are internationally recognised and accept international appli
 
 ---
 
-### 🎓 Our Free Services
+### 🎓 Our Services
 
 Desire2Study offers complete support with:
 
